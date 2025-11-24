@@ -1,7 +1,7 @@
 # 👋 Welcome to AORA Digitals 💫  
 ### Empowering Businesses Through Technology
 
-Hey there! We’re *AORA Digitals* — a next-generation *tech solutions and services company* founded by *Anurag Bhavthankar, focused on delivering **innovation-driven digital transformation* for startups, enterprises, and individuals.
+Hey there! We’re *AORA Digitals* — a next-generation *tech solutions and services company* founded by *AORA Group, focused on delivering **innovation-driven digital transformation* for startups, enterprises, and individuals.
 
 ---
 
